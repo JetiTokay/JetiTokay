@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any Projects ...
 - 📫 How to reach me on my pager
 - 😄 Pronouns: ... lmfao!
-- - ⚡ Fun fact: ... Certied Fortlift Driver lol  
+- - ⚡ Fun fact: ...  Fortlift Certified lol  
 
 <!---
 JetiTokay/JetiTokay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
